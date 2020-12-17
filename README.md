@@ -8,3 +8,7 @@ you will like it.
 # How to Use :
 
 Open game gaurdian and than open pubg mobilevand at logo execute script it will automatically apply anticheat disbaler and than after reaching lobby simply apply lobby features and in game features in island. No need any tyor of lobby antiban. It 100x safer than normal lobby antiban. But still i recommend not to use main id.
+
+# Contact :
+
+Telegram : http://t.me/silentX1816
